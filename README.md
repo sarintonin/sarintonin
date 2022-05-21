@@ -1,1 +1,3 @@
-twelve hundred and fifteen thousand minutes of my fourty-nine seconds
+sarintonin
+high school senior
+i like math and radiohead
